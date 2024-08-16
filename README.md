@@ -1,1 +1,1 @@
-# dekopinda-kota-banda-aceh
+# dekopinda-karanganyar
